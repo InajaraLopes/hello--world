@@ -1,4 +1,4 @@
-As vezes temos que arrisca, experimentar
+As vezes temos que arriscar,experimentar
 
 Para conseguirmos aprender.
 
